@@ -1,1 +1,0 @@
-# mitaa-privacy-policy
